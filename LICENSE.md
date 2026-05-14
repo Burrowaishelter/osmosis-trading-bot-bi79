@@ -1,4 +1,4 @@
-# 
+# ultimate osmosis trading bot | liquidity-pool-analysis + flash-loan-integration offers the most advanced osmosis trading bot, with liquidity-pool-analysis and
 
 
 
